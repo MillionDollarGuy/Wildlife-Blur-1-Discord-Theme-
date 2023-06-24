@@ -18,3 +18,6 @@ Trees in a forest - https://wallpapercave.com/dwp1x/wp9160759.jpg
 Lone tree with moon - https://wallpapercave.com/dwp1x/wp7243608.jpg
 
 Night Sky with tree - https://wallpapercave.com/dwp1x/wp9161021.jpg
+
+
+Note :- Support is available only for BetterDiscord and Vencord.
